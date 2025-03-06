@@ -1,42 +1,22 @@
 # Blackmar-Diemer Gambit
 
-##### Twitter
+![Opening image](https://www.thechesswebsite.com/wp-content/uploads/2012/07/blackmar_big.jpg)
 
-##### Twitter
-
-##### Youtube
-
-##### Youtube
-
-![alt text](https://www.thechesswebsite.com/wp-content/uploads/2015/08/logo.png)
-##### Search
-
-# Blackmar-Diemer Gambit
-
-![alt text](/wp-content/uploads/2012/07/blackmar_big.jpg)
 The Blackmar-Diemer Gambit is one of the most ambitious attempts for white to gain a developmental advantage.
+
 1. d4 d52. e4 dxe43. Nc3
+
 From the second move white looks to give away his king’s pawn. Although many top GM’s find this to be unsound, many club level players have great success with it and if you are a very aggressive player I recommend playing it from time to time.
+
 After white gives gambit’s his pawn he then looks to develop his knight to c3, followed by playing f3. This move only shows that those players attempting to play this opening like to play outside standard theory. After black captures on f3, white can either capture with his knight or can instead play the aggressive line (Ryder Gambit) and capture with his queen, thus allowing the black queen to take an additional white pawn on d4.
+
 If white does decide to play the Ryder Gambit, many times black can fall into the Halosar Trap. If you haven’t checked out the video on the Halosar Trap you can watch itHERE.
+
 It is also very important to remember that this opening can be transposed from other openings. One of the most common lines is white opening with e4 and black responding with the Scandinavian Defense d5. If you don’t like playing against the Scandinavian Defense you can now play d4 and you will have the same position.
+
 This opening is very fun for those players that don’t mind giving up a pawn or two in the early part of a game in exchange for a large lead in development and the potential to chase the opponents king around the board all game long. If you however only like to play when you are up in material this is not the opening for you.
+
 Watch the video below to watch more detailed explanations of the opening, multiple variations, and extended lines.
 
-### Looking for in depth analysis for extended lines?
-![alt text](https://www.thechesswebsite.com/wp-content/uploads/2022/09/ryder-gambit.jpg)
-##### Ryder Gambit
-![alt text](https://www.thechesswebsite.com/wp-content/uploads/2020/04/icon-timer-white.png)
 GetUnlimited AccessTo All Of Our Strategies, Practice Games And More
-##### Join Now
-
-##### Join Now
-
-##### Twitter
-
-##### Twitter
-
-##### Youtube
-
-##### Youtube
 

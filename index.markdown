@@ -36,4 +36,3 @@ If you would like to filter the openings by a specific move you can click the mo
 - [Catalan Opening](catalan-opening.md)
 - [Chigorin Defense](chigorin-defense.md)
 - [Cochrane Gambit](cochrane-gambit.md)
-
