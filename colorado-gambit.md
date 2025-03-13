@@ -12,5 +12,3 @@ Many of the variations in this opening have safe lines and aggressive lines. If 
 
 Make sure you check out the video below to learn more about all the variations.
 
-GetUnlimited AccessTo All Of Our Strategies, Practice Games And More
-

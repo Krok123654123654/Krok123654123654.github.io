@@ -26,5 +26,3 @@ Morozevich vs Bologan, 2004
 
 Kasparov vs Karpov, 2001
 
-GetUnlimited AccessTo All Of Our Strategies, Practice Games And More
-

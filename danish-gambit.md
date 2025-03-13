@@ -22,5 +22,3 @@ Charousek vs J Wollner, 1893
 
 W Lutes vs R Hartenstein, 1962
 
-GetUnlimited AccessTo All Of Our Strategies, Practice Games And More
-

@@ -14,5 +14,3 @@ Nc3 tends to go down a Nimzo-Indian Defense line. Bd2 is the main line that whit
 
 If you would like to learn more about each of these variations be sure to watch the video below.
 
-GetUnlimited AccessTo All Of Our Strategies, Practice Games And More
-

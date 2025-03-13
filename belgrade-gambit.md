@@ -10,5 +10,3 @@ White’s most common move after 4…exd4 is to recapture with 5. Nxd4 but Nd5 a
 
 Make sure you check out the video below to learn more about all the variations. We cover all the key concepts in the opening so you can be the most prepared person if you ever play with or against the Belgrade Gambit.
 
-GetUnlimited AccessTo All Of Our Strategies, Practice Games And More
-

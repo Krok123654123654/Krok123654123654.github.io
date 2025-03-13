@@ -30,5 +30,3 @@ While it is not the most common opening, the Bishop’s Opening still offers a l
 
 Below you can watch all of the lines referenced on this page and see a much deeper analysis on the Bishop’s Opening.
 
-GetUnlimited AccessTo All Of Our Strategies, Practice Games And More
-

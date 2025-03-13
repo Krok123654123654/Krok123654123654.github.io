@@ -14,5 +14,3 @@ This is not the strongest gambit and is not recommended in games where your oppo
 
 If you would like to learn more about each of these variations be sure to watch the video below.
 
-GetUnlimited AccessTo All Of Our Strategies, Practice Games And More
-

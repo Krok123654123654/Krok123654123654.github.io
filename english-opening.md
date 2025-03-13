@@ -18,5 +18,3 @@ Smyslov vs V Liberzon, 1969
 
 E Nikolic vs Fischer, 1968
 
-GetUnlimited AccessTo All Of Our Strategies, Practice Games And More
-

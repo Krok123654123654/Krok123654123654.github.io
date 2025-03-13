@@ -26,5 +26,3 @@ Spassky vs Fischer, 1992
 
 Kavalek vs Matulovic, 1966
 
-GetUnlimited AccessTo All Of Our Strategies, Practice Games And More
-

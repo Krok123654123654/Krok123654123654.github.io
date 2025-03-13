@@ -12,5 +12,3 @@ If you like to attack as the black pieces then the Calabrese Countergambit is de
 
 Watch the video below to learn more about extended lines in this opening.
 
-GetUnlimited AccessTo All Of Our Strategies, Practice Games And More
-

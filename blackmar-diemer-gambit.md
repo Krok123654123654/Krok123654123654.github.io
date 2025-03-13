@@ -18,5 +18,3 @@ This opening is very fun for those players that don’t mind giving up a pawn or
 
 Watch the video below to watch more detailed explanations of the opening, multiple variations, and extended lines.
 
-GetUnlimited AccessTo All Of Our Strategies, Practice Games And More
-

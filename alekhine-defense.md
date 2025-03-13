@@ -26,5 +26,3 @@ Verlinsky vs I Rabinovich, 1925
 
 H Borochow vs Fine, 1932
 
-GetUnlimited AccessTo All Of Our Strategies, Practice Games And More
-

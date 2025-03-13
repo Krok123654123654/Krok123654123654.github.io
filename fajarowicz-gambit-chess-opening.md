@@ -28,5 +28,3 @@ Remember, chess is a journey of continuous learning and adaptation. Experiment w
 
 Good luck, and may your adventures with the Fajarowicz gambit lead you to many exciting games and victories!
 
-GetUnlimited AccessTo All Of Our Strategies, Practice Games And More
-

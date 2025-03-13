@@ -34,5 +34,3 @@ The King’s Gambit is my favorite opening and this is my favorite counter to th
 
 Below you can watch all of the lines referenced on this page and see a much deeper analysis on the Adelaide Counter Gambit.
 
-GetUnlimited AccessTo All Of Our Strategies, Practice Games And More
-

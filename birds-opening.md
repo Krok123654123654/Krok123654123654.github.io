@@ -20,5 +20,3 @@ NN vs R Crepeaux, 1923
 
 A Brinckmann vs Kmoch, 1927
 
-GetUnlimited AccessTo All Of Our Strategies, Practice Games And More
-

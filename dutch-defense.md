@@ -20,5 +20,3 @@ I De Winter vs Spassky
 
 J Brenninkmeijer vs Anand
 
-GetUnlimited AccessTo All Of Our Strategies, Practice Games And More
-

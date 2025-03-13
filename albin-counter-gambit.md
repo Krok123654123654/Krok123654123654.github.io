@@ -24,5 +24,3 @@ Lasker vs Alekhine, 1914
 
 Spassky vs V Mikenas, 1959
 
-GetUnlimited AccessTo All Of Our Strategies, Practice Games And More
-

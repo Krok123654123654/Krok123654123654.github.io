@@ -24,5 +24,3 @@ Tarrasch vs K Eckart, 1892
 
 J Schulten vs Morphy, 1857
 
-GetUnlimited AccessTo All Of Our Strategies, Practice Games And More
-

@@ -24,5 +24,3 @@ Capablanca vs Tartakower, 1928
 
 Alekhine vs I Rabinovich, 1925
 
-GetUnlimited AccessTo All Of Our Strategies, Practice Games And More
-

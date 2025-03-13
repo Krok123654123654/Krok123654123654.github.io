@@ -16,5 +16,3 @@ The French Defense ranks second in popularity only to the Sicilian against white
 
 Watch the videos below to watch more detailed explanations of the opening, multiple variations, and extended lines.
 
-GetUnlimited AccessTo All Of Our Strategies, Practice Games And More
-
